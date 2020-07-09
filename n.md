@@ -1,0 +1,5 @@
+N as in…
+
+---
+
+NOVEMBER
